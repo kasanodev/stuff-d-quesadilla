@@ -1,1 +1,2 @@
-# stuff-d-quesadilla
+# Stuffd Quesadilla
+With their large, hearty portions; affordable prices; delicious halal-certified burritos, kebabs, and bowls made with fresh natural ingredients of your choice, Stuff'd has consistently drawn long queues at their outlets. [Stuff'd quesadilla](https://sgmenu.org/stuffd-menu/) ingredients contain healthy oils and are packed with nutrients, fibre and protein. Gluten, dairy-free and vegan options are available too. Topping options are buttered corn, mash potato, cilantro rice, cous cous, & black beans. Many stuff'd lovers call it one of the best fast food restaurant in Singapore, even though it serves Mexican cuisine.
